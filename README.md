@@ -1,4 +1,2 @@
-Hi, I’m Nico 
-
-Here is my Twitter:
+Twitter:
 https://twitter.com/nicokvar
